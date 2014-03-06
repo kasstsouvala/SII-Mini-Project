@@ -1,0 +1,1 @@
+Mini Project for online searching Shopping Stores in Muenster, Germany
